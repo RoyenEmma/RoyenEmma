@@ -1,5 +1,5 @@
 ### Hi there 👋
-### I'm currently working on Excelling pursuits and learning product management. I'm looking to collaborate with designers and developers to create a tangible project whose main aim is to excél in any pursuit of human endeavours.
+### I'm currently working on excelling pursuits and learning product management. I'm looking to collaborate with designers and developers to create tangible projects whose main aim is to excél in any pursuit of human endeavours.
 ### I can be reached via royenemmanuel@gmail.com and +2347066992344
 
 ### Fun fact: Reading, Researching, Swimming, Volleyball,Travelling, Networking and writing.
